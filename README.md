@@ -1,5 +1,5 @@
 # 💫About Me :
-🎉My name is Tran Thi d. I was born on January 18, 2001
+🎉My name is Tran Thi Diu Huong. I was born on January 18, 2001
 🎯My aim is to work as a BA, software tester, or front-end developer.
 🖋 From 2019 to the present, I am a student at FPT University.
 🎉My personality is sociable and nimble, and I am willing to learn and work
